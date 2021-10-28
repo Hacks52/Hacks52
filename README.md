@@ -9,8 +9,7 @@
 -->
 
 
-My Website: http://wjc-llc.6te.net
+My Website: https://jester515development.ml/
 
 <----- contacts ----->
-Discord: WeddedJester515#2612
-Email: archer0425@gmail.com
+Discord: WeddedJester515#5457
