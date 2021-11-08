@@ -10,6 +10,3 @@
 
 
 My Website: https://jester515development.ml/
-
-<----- contacts ----->
-Discord: WeddedJester515#5457
